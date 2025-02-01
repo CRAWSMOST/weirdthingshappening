@@ -1,5 +1,7 @@
+
 <h2 p align="center">CRAWSMOSTRO, THE MONSTER OF YOUR DREAMS!
-<p align="center"><img src="https://f2.toyhou.se/file/f2-toyhou-se/images/82999050_IGmzhna0SWKsfzr.gif" width="25%"></p>
+
+<p align="center"><img src="https://f2.toyhou.se/file/f2-toyhou-se/images/82999050_IGmzhna0SWKsfzr.gif" width="50%"></p>
 <p align="center">
 hi hello. i'm dante, i don't use pony town a lot but i love meeting people and talking. i'm 18+, he/him transmasculine person from outside the united states. i might be too insane sometimes because i get excited easily!! so i'm sorry if i intimidate a little. iffff, i'm inactive, and u wanna talk to me in pony town, throw a whisper and it's all fine!!!! SPECIALLY if you're someone who likes the cosplay i'm wearing ...hhahhahfhhshfjshks..............
 <p align="center">
